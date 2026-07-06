@@ -1,4 +1,4 @@
-# 
+# Inteligente DisplayFusion plantillas para Mac OS | Código abierto DisplayFusion plantillas para PC Windows. Con impulso de rendimiento y limpieza de caché — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
